@@ -30,3 +30,17 @@ boku no kokoro no subete o ubatta
 dokoka hakanai kuuki o matou kimi wa
 
 samishii me o shiteta nda
+
+### 3rd Verse
+
+itsu datte chikkutakku to
+
+naru sekai de nando datte sa
+
+fureru kokoronai kotoba urusai koe ni
+
+namida ga koboresou demo
+
+arikitari na yorokobi kitto
+
+futari nara mitsukerareru
